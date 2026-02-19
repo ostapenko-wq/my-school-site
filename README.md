@@ -1,1 +1,1 @@
-# my-school-site
+# my-school-site.
